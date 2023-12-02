@@ -1,0 +1,1 @@
+# Shopology.github.io
